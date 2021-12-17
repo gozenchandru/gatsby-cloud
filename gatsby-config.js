@@ -6,7 +6,7 @@ module.exports = {
       summary: `No more summary`,
     },
     description: `This gonna be a test`,
-    siteUrl: ``,
+    siteUrl: `https://gatsby-cloud-master.gatsbyjs.io/`,
     social: {
       twitter: `kylemathews`,
     },
