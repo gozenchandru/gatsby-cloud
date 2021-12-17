@@ -37,3 +37,66 @@ While social media marketing can be a great tool for attracting an audience, pub
 3.  Dear foresaw hungry and much some overhung
 4.  Rash opossum less because less some amid besides yikes jeepers frenetic
     impassive fruitlessly shut
+
+
+### What did the Facebook outage reveal about online users?
+
+Data shows that online users started to look at independent publishers that they trusted for news and entertainment. This led to as much as a 40% increase in traffic during the six hours that Facebook was down. While more established publishers saw a bigger increase in traffic, even smaller publishers managed to see a small increase in traffic as well.
+
+> Far far away, behind the word mountains, far from the countries Vokalia and
+> Consonantia, there live the blind texts. Separated they live in Bookmarksgrove
+> right at the coast of the Semantics, a large language ocean.
+
+The first is that, while Facebook is really good at keeping users on their platform when everything is running smoothly, outages force users to look to other sources for the content they're used to consuming. Once it became apparent that this latest outage might be a prolonged one, users had to move on quickly so that they wouldn't fall behind in the fast-moving, 24/7 cycle of content and information that is our modern digital world. 
+
+### How can publishers reach their audience without social media?
+
+While social media marketing can be a great tool for attracting an audience, publishers need to think deeper about other ways to build and sustain a relationship with them instead of only considering traffic numbers. Loyal relationships are key to ensuring long-term success, regardless of what's happening in the online world.
+
+1.  So baboon this
+2.  Mounted militant weasel gregariously admonishingly straightly hey
+3.  Dear foresaw hungry and much some overhung
+4.  Rash opossum less because less some amid besides yikes jeepers frenetic
+    impassive fruitlessly shut
+    
+   
+### What did the Facebook outage reveal about online users?
+
+Data shows that online users started to look at independent publishers that they trusted for news and entertainment. This led to as much as a 40% increase in traffic during the six hours that Facebook was down. While more established publishers saw a bigger increase in traffic, even smaller publishers managed to see a small increase in traffic as well.
+
+> Far far away, behind the word mountains, far from the countries Vokalia and
+> Consonantia, there live the blind texts. Separated they live in Bookmarksgrove
+> right at the coast of the Semantics, a large language ocean.
+
+The first is that, while Facebook is really good at keeping users on their platform when everything is running smoothly, outages force users to look to other sources for the content they're used to consuming. Once it became apparent that this latest outage might be a prolonged one, users had to move on quickly so that they wouldn't fall behind in the fast-moving, 24/7 cycle of content and information that is our modern digital world. 
+
+### How can publishers reach their audience without social media?
+
+While social media marketing can be a great tool for attracting an audience, publishers need to think deeper about other ways to build and sustain a relationship with them instead of only considering traffic numbers. Loyal relationships are key to ensuring long-term success, regardless of what's happening in the online world.
+
+1.  So baboon this
+2.  Mounted militant weasel gregariously admonishingly straightly hey
+3.  Dear foresaw hungry and much some overhung
+4.  Rash opossum less because less some amid besides yikes jeepers frenetic
+    impassive fruitlessly shut
+    
+    
+### What did the Facebook outage reveal about online users?
+
+Data shows that online users started to look at independent publishers that they trusted for news and entertainment. This led to as much as a 40% increase in traffic during the six hours that Facebook was down. While more established publishers saw a bigger increase in traffic, even smaller publishers managed to see a small increase in traffic as well.
+
+> Far far away, behind the word mountains, far from the countries Vokalia and
+> Consonantia, there live the blind texts. Separated they live in Bookmarksgrove
+> right at the coast of the Semantics, a large language ocean.
+
+The first is that, while Facebook is really good at keeping users on their platform when everything is running smoothly, outages force users to look to other sources for the content they're used to consuming. Once it became apparent that this latest outage might be a prolonged one, users had to move on quickly so that they wouldn't fall behind in the fast-moving, 24/7 cycle of content and information that is our modern digital world. 
+
+### How can publishers reach their audience without social media?
+
+While social media marketing can be a great tool for attracting an audience, publishers need to think deeper about other ways to build and sustain a relationship with them instead of only considering traffic numbers. Loyal relationships are key to ensuring long-term success, regardless of what's happening in the online world.
+
+1.  So baboon this
+2.  Mounted militant weasel gregariously admonishingly straightly hey
+3.  Dear foresaw hungry and much some overhung
+4.  Rash opossum less because less some amid besides yikes jeepers frenetic
+    impassive fruitlessly shut
